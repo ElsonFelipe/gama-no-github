@@ -1,0 +1,1 @@
+Estou gostando muito de ter a oportunidade de praticar bem esses recursos importantes que já conhecia na teoria, mas tinha pouca habilidade.
